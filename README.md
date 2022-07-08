@@ -9,3 +9,4 @@ Here are some ideas to get you started:
 - gosto de anime,desenhar e ouvir musica
 - email de ctt;vitorie.santos@escola.pr.gov.br
 - ela/dela
+-personagem favorito;Baji keisuke
